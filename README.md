@@ -1,2 +1,2 @@
 # New-Project-101
-His mercies are new today. This is where gratefulness is where blessings flow.
+His mercies are new today. Gratefulness is where blessing's flow.
